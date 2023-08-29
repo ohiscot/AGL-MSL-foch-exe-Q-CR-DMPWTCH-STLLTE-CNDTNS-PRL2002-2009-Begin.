@@ -1,0 +1,2 @@
+# AGL-MSL-foch-exe-Q-CR-DMPWTCH-STLLTE-CNDTNS-PRL2002-2009-Begin.
+DUMPWATCH Use Policy REFERENCE to Q>1 Condition of Parôle when SATCAM SURVEILLANCE MEASURES PLAW-Series deeplogic intuitive and ML cause Havanna Syndrome,Elf Syndrome, or FOGC floaters &amp;&amp; flashes as heavy water Use Policy is AWS\ \AWD@@∆CR. AWS&amp;&amp;AWD SHOULD BE / / ASIS PADI®SCUBA/did/DiveLog/Field Variable/Lat.&amp;&amp;Long./Acc
